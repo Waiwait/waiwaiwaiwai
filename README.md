@@ -1,5 +1,4 @@
 # waiwaiwaiwai
-waiwaeiwaiwaiwai
-neese
-saddsadad
+https://github.com/Waiwait/waiwaiwaiwai.git
+waiwaaiwaiwaiwai
 
